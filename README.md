@@ -1,6 +1,9 @@
 "# Lei-Jun-s-Minecraft-Music-Disc-Resource-Pack" 
+
 Are You OK ？
+
 ![image](https://github.com/HonkerBit/Lei-Jun-s-Minecraft-Music-Disc-Resource-Pack/assets/146426985/19d23ab4-bca5-4829-82fe-113e7184b9f5)
+
 下载zip文件，打开你的Minecraft设置选项，点击资源包：
 ![image](https://github.com/HonkerBit/Lei-Jun-s-Minecraft-Music-Disc-Resource-Pack/assets/146426985/24f6a729-e54c-4763-920f-ab2ac8373397)
 点击打开文件夹，将下载好的zip文件拖进打开的文件夹即可应用这个资源包
