@@ -1,6 +1,6 @@
 "# Lei-Jun-s-Minecraft-Music-Disc-Resource-Pack" 
 
-米粉们 Are You OK ？喜欢就给我一个免费的star
+米粉们 Are You OK ？喜欢就给我一个免费的star😭
 
 ![image](https://github.com/HonkerBit/Lei-Jun-s-Minecraft-Music-Disc-Resource-Pack/assets/146426985/19d23ab4-bca5-4829-82fe-113e7184b9f5)
 
