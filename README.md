@@ -8,4 +8,5 @@ Are You OK ？
 ![image](https://github.com/HonkerBit/Lei-Jun-s-Minecraft-Music-Disc-Resource-Pack/assets/146426985/24f6a729-e54c-4763-920f-ab2ac8373397)
 点击打开文件夹，将下载好的zip文件拖进打开的文件夹即可应用这个资源包
 更多内容敬请期待...
+
 ##非小米官方，仅供娱乐##
