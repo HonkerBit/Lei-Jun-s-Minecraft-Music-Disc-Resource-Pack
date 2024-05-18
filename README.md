@@ -1,4 +1,4 @@
-"# Lei-Jun-s-Minecraft-Music-Disc-Resource-Pack" 
+"Lei-Jun-s-Minecraft-Music-Disc-Resource-Pack" 
 
 米粉们 Are You OK ？喜欢就给我一个免费的star😭
 
